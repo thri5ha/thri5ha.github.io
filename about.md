@@ -19,7 +19,7 @@ Software engineer by profession, building and fixing stuff most of the time. An 
 
 - Poker face, awkward smiles and lots of laughter is what you'll see. 
 - Attentive listener, however not very expressive
-- Clutters the bed all week and declutters during weekend, wants to be organised.
+- Clutters the bed all week and unclutters during weekend, wants to be organized.
 - Can be a little shy sometimes
 - Stationary hoarder
 - Admires artistic work
@@ -33,7 +33,7 @@ Holds a Bachelors of Engineering degree, can read and understand tech stuff, wri
 ### How I spend time
 
 - Mostly on youtube
-    - consuming news, stoic stuff, comedy, character analysis of my favourite movie characters
+    - consuming news, stoic stuff, comedy, character analysis of my favorite movie characters
 - House chores (helps cook/clean)
 - Overthink and live in my head
 - Artistic stuff
@@ -41,6 +41,6 @@ Holds a Bachelors of Engineering degree, can read and understand tech stuff, wri
     - Some of my artistic stuff can be found [here in my insta](https://www.instagram.com/thri5ha/)
 - Little bit of anime
     - Almost completed Naruto Shippuden ❤
-    - Beginning One piece, ~20 episdoes now
+    - Beginning One piece, ~20 episodes now
 - I've a lot to study/ learn in my backlog
-- Came close to enjoying badmiton and cycling
+- Came close to enjoying badminton and cycling
