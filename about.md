@@ -4,6 +4,6 @@ title: About
 permalink: /about/
 ---
 
-I'm thrisha, and welcome to my blog :smiling_face_with_smiling_eyes:
+I'm thrisha, and welcome to my blog 😊
 ### Persona
 ### More Information
