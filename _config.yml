@@ -18,11 +18,11 @@ avatar: https://avatars.githubusercontent.com/u/74582266?s=400&u=a040d942bfa2b63
 # Includes an icon in the footer for each username you enter
 footer-links:
   dribbble:
-  email:
+  email: thri5ha@outlook.com
   facebook:
   flickr:
-  github: https://github.com/thri5ha
-  instagram:
+  github: thri5ha
+  instagram: thri5ha
   linkedin:
   pinterest:
   rss: # just type anything here for a working RSS icon
@@ -76,7 +76,8 @@ sass:
 gems:
   - jekyll-sitemap # Create a sitemap using the official Jekyll sitemap gem
   - jekyll-feed # Create an Atom feed using the official Jekyll feed gem
-
+  - jemoji
+  
 # Exclude these files from your production _site
 exclude:
   - Gemfile
