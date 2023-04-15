@@ -85,32 +85,34 @@ I needed the best camera! I don't want the bulky original cameras, and iPhone ha
 Options I had:
 - iPhone 13
 
-    128 GB storage
+    128 GB storage, is a year old.
 - <s>iPhone 14</s>
 
-    Doesn't have any significant difference to me.
-    20k+ the iphone 13, but the 13 is a year older.
+    Doesn't seem to have any significant difference for me to pay extra 20k than the iphone 13.
 
     The pro models, dynamic island, NOPE.
 - Oneplus 11
 
-    Has very positive reviews and I get 256 GB storage and the comparison of the cameras were nearly good  and close!
+    Has very positive reviews and I get 256 GB storage for the same price of iPhone 13 and the comparison of the cameras were nearly good and close!
 
 - Samsung Galaxy S23 Ultra
 
-    This one is more than double the price of iphone13 and OP11, but in the style of a Samsung Note, it had a Stylus inside me, freaked me out in the positive way, I was extremely tempted by this. 
-    I have used Samsung Galaxy S3 and I was in love with it. I still love it so much.
+    This one is more than double the price of iphone13 and OP11, and similar to the style of a Samsung Note, it had a Stylus inside it, freaked me out in the positive way, I was extremely tempted by this. 
+    I have used Samsung Galaxy S3 and I was in love with it.
 
     Unfortunately S23 Ultra was expensive, and I previously bought an iPad with the hopes of being a digital artist, but I seldom use it. So my rational brain convinced my stupid heart that this is not for me and I was freed from my temptation. 
 
 Now the choice was mostly between OP11 and iPhone 13. However, iPhone 15 will be launched around this year and this made me wonder if I had to wait for it.
 
-From the leaks, I understood that iPhone 15 will no longer require the fancy expensive Lightning cable and will support USB C. This is tempting, and my rational brain cannot talk me out of this because this is a great thing to wait for. Ditch the lightning. But I immediately needed a good camera phone, and was not ready to wait. So my rational brain started cooking more thoughts to turn me into buying 13. May be iPhone 15 would be expensive ? or may be due to launch of 15, they might stop 13 soon.
+From the leaks, I understood that iPhone 15 will no longer require the fancy expensive Lightning cable and will support USB C. This is tempting, and my rational brain cannot talk me out of this because this is a great thing to wait for. Ditch the lightning. Hmm, however I immediately needed a good camera phone, and was not ready to wait. So my rational brain started cooking more thoughts to turn me into buying 13. May be iPhone 15 would be expensive ? or may be due to launch of 15, they might stop 13 soon.
 
 Here comes the twist, I was talking to a friend where he mentioned buying an action camera for 1.5K (3years ago, with an introductory offer). But still it is totally on the other spectrum of the numbers I have to pay. And I started digging into *Action cameras*, they are portable and take decent pictures as well as videos.
-I wasn't interested on GoPro but similar Action cameras were starting at 5K. My brain asking me *Idhelam thevaya Thrisha, camera kaaga ivalo selavu ah*. Anyway, the shots in Action camera couldn't match the iPhone.
+I wasn't interested on GoPro but similar Action cameras were starting at 5K. Anyway, the shots in Action camera couldn't match the iPhone.
 
-And again, [YOLO](#yolo) theory. I'm privileged to not pay any bills now, and definitely will be consumed and constrained by money matters later in life. My intuition just told me to go for it, and thanks to BF and my dear friend for making me push, I went for it.
+*Enna irundhalum iPhone - iPhone tane..*
+My brain asking me *Idhelam thevaya Thrisha, camera kaaga ivalo selavu ah*. 
+
+And again, [YOLO](#yolo) theory. I'm privileged to not pay any bills now, and definitely will be consumed and constrained by money matters later in life. My intuition just told me to go for it, and thanks to BF and my dear friend for making me push, I went for it. I did disappoint few people asusual.
 
 I'm now owner of iPhone 13. And I bought it just on my birthday, I knew what I was doing, there was *one piece* of *baby pink colored iphone* and I grabbed it! It will be my secondary phone. I will carry around my android low budget phone with me always, it does what I need to do. To justify the expense, I need to hold on to the iPhone13 for atleast 7 years! HaHa let us see how it goes.
 
@@ -130,9 +132,9 @@ There is just a tiny difference between wholesome and cringe. What appears cring
 Things being cringe and wholesome can depend on the time/ age.
 ![cringe vs wholesome](/images/cringe_vs_wholesome.jpg)
 
-[I love artistic stuff](/about.md), and in 2020 I did some minimal animation using powerpoint (Yes, powerpoint, from scratch drew lotus, a lady) did a voice over and posted it in youtube. I couldn't stand the cringe and ended up deleting everything. It is on top of my regret list, even if it is cringe I shouldn't have deleted it, now I lost it totally.
+[I love artistic stuff](/about.md), and in 2020 I did some minimal animation using powerpoint (Yes, powerpoint, from scratch drew lotus, a lady and story boarded Vivega Sinthamani song 19) did a voice over and posted it in youtube. I couldn't stand the cringe and ended up deleting everything later. It is on top of my regret list, even if it is cringe I shouldn't have deleted it, now I completely lost it.
 
-*Regarding the Graph,* which I drew with Powerpoint,
+*Regarding the Graph,*
 as we grow up, we'll give us more love and start embracing us more. Cringe level decreases with time and the wholesomeness increases with time. 
 
 Give yourself enough time to love yourself.
