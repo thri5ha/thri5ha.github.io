@@ -112,7 +112,7 @@ I wasn't interested on GoPro but similar Action cameras were starting at 5K. Any
 *Enna irundhalum iPhone - iPhone tane..*
 My brain asking me *Idhelam thevaya Thrisha, camera kaaga ivalo selavu ah*. 
 
-And again, [YOLO](#yolo) theory. I'm privileged to not pay any bills now, and definitely will be consumed and constrained by money matters later in life. My intuition just told me to go for it, and thanks to BF and my dear friend for making me push, I went for it. I did disappoint few people asusual.
+And again, [YOLO](#yolo) theory. I'm privileged to not pay any bills now, and definitely will be consumed and constrained by money matters later in life. My intuition just told me to go for it, and thanks to my ever supportive BF and my dear friend for making me push, I went for it. I did disappoint few people asusual.
 
 I'm now owner of iPhone 13. And I bought it just on my birthday, I knew what I was doing, there was *one piece* of *baby pink colored iphone* and I grabbed it! It will be my secondary phone. I will carry around my android low budget phone with me always, it does what I need to do. To justify the expense, I need to hold on to the iPhone13 for atleast 7 years! HaHa let us see how it goes.
 
@@ -132,7 +132,7 @@ There is just a tiny difference between wholesome and cringe. What appears cring
 Things being cringe and wholesome can depend on the time/ age.
 ![cringe vs wholesome](/images/cringe_vs_wholesome.jpg)
 
-[I love artistic stuff](/about.md), and in 2020 I did some minimal animation using powerpoint (Yes, powerpoint, from scratch drew lotus, a lady and story boarded Vivega Sinthamani song 19) did a voice over and posted it in youtube. I couldn't stand the cringe and ended up deleting everything later. It is on top of my regret list, even if it is cringe I shouldn't have deleted it, now I completely lost it.
+[I love artistic stuff](/about), and in 2020 I did some minimal animation using powerpoint (Yes, powerpoint, from scratch drew lotus, a lady and story boarded Vivega Sinthamani song 19) did a voice over and posted it in youtube. I couldn't stand the cringe and ended up deleting everything later. It is on top of my regret list, even if it is cringe I shouldn't have deleted it, now I completely lost it.
 
 *Regarding the Graph,*
 as we grow up, we'll give us more love and start embracing us more. Cringe level decreases with time and the wholesomeness increases with time. 
@@ -146,6 +146,6 @@ Give yourself enough time to love yourself.
 I'm totally not the person who creates playlists and listens to different songs. I grow liking for a song, put it on repeat and loop over it for days. And this is the song which possessed me recently! And yes, I came here from some kind of reels. 
 
 
-Spelling mistake, grammatical and factual errors, any feedback +/- when reported will be appreciated!
+Spelling mistake, grammatical, factual errors, and any feedback +/- when reported through any medium in the footer section, will be appreciated!
 
 Wrapping up! See you soon! Kadha ketadhu podhum, Vaanga poi velaiya paapom.
