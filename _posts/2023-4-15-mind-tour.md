@@ -11,7 +11,7 @@ Welcome to this page! I'm mixing lot of stuff into this post, indexed it as well
 - [Battle between the mobiles, which phone did I buy ? ](#Battle-between-the-mobiles)
 - [Cringe vs wholesome](#Cringe-vs-wholesome)
 
-### Catching up and addressing some comments
+### <a id="#Catching-up-and-addressing-some-comments">Catching up and addressing some comments</a>
 Out of the handful of people who read the first post, some were kind enough to let me know it's nice and cute! Nandrigal (Thank you very much!).
 
 Regarding a question about my mother tongue, technically, it's telugu. Born and brought up in Chennai, I grew up studying Samacheer kalvi Tamil books. I know to read, write Tamil and 0 % of telugu, I'm not into Tollywood, and even if I do watch Tollywood movies, I'd watch the Tamil dub than the original.
@@ -33,7 +33,7 @@ Banglore has been renamed to Bengaluru, *writing 'தமிழ்' as Tamil is a
 
 I wrote too much here, but I really appreciate any kind of feedbacks I can get and thank you for giving the same!
 
-### My birthday on 2023
+### <a id="My-birthday-on-2023">My birthday on 2023</a>
 
 I'm not a birthday person at all, not used to cutting cakes after I grew up. Not fond of birthdays too, all unlucky things happens to me on that day. Sometimes I really hate it. 
 
@@ -49,7 +49,7 @@ I bought 1.4 Litres of vanilla family pack ice cream on the way to office, purch
 My younger self would have been freaked out by this, totally embarrassed. So hosting this mini ice cream sharing session was close to my heart, it has shown me that I have grown up, IDGAF about what others would think and I can make myself happy with all little tiny things, [do interesting stuff](https://youtube.com/shorts/mCOW-d79Sfg?feature=share) :)
 
 
-### Working at odd times
+### <a id="Working-at-odd-times">Working at odd times</a>
 
 Apologies if you are my colleague -_- I sometimes reply to work messages during my time off or even work. **Nope**, it is not an act of buttering my bosses, I know there is nothing to gain going that way, I do this irrespective of the pay I receive. Apologies to my colleagues if this made them uncomfortable. Here are few reasons I do this:
 
@@ -75,7 +75,7 @@ Apart from this Jilunu oru Kaadhal is awesome! very lovely. All music is wonderf
 [Kundhavai](https://youtu.be/iuptExNo_AA) is aweseome in this movie too.
 
 
-### Battle between the mobiles
+### <a id="Battle-between-the-mobiles">Battle between the mobiles</a>
 
 In my first post I mentioned about buying an iPhone :) 
 
@@ -123,7 +123,7 @@ And it turned out amazing! See for yourself, What do you say ?
 
 ![](/images/sunflower_case.jpeg)
 
-### Cringe vs wholesome
+### <a id="Cringe-vs-wholesome">Cringe vs wholesome</a>
 
 There is just a tiny difference between wholesome and cringe. What appears cringe to you, will be wholesome to others and vice versa.
 
