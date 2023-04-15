@@ -130,9 +130,9 @@ There is just a tiny difference between wholesome and cringe. What appears cring
 Things being cringe and wholesome can depend on the time/ age.
 ![cringe vs wholesome](/images/cringe_vs_wholesome.jpg)
 
-I did some minimal animation using powerpoint (Yes, powerpoint, from scratch drew lotus, a lady) did a voice over and posted it in youtube. I couldn't stand the cringe and ended up deleting everything. It is on top of my regret list, even if it is cringe I shouldn't have deleted it, now I lost it totally.
+[I love artistic stuff](/about.md), and in 2020 I did some minimal animation using powerpoint (Yes, powerpoint, from scratch drew lotus, a lady) did a voice over and posted it in youtube. I couldn't stand the cringe and ended up deleting everything. It is on top of my regret list, even if it is cringe I shouldn't have deleted it, now I lost it totally.
 
-*Reg. the Graph,*
+*Regarding the Graph,* which I drew with Powerpoint,
 as we grow up, we'll give us more love and start embracing us more. Cringe level decreases with time and the wholesomeness increases with time. 
 
 Give yourself enough time to love yourself.
